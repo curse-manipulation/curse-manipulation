@@ -34,3 +34,9 @@ dni freaks dni sakura haters dni sasusaku bashers
 <div align="center">
   
 [rentry](https://rentry.co/kdar) ; [atabook](https://sasuke.atabook.org) ; [strawpage](https://sabakunogaara.straw.page)
+
+
+‎‎  
+‎ ‎‎  
+‎ ‎‎  
+thank u star . for helping me idk Bro i wouldve gone Insane
