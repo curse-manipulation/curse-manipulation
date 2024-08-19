@@ -1,16 +1,36 @@
-## Hi there 👋
+⠀⠀
+<div align="left">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⣠⠞⠉⠉⠳⠴⠀⠀⠀⠀⠀⠀
+<div align="left">
+⠀⠀⠀⠀⣠⡾⠋⠉⠲⡏⠀⠀⠀⠀⠀⠀⠀⠀⠙⠋⠉⠛⢶⡄⠀
+<div align="left">⠀
+⠀⠀.⣰⡏⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢸⣇⣀⣀⠀⠀
+<div align="left">
+⢠⡾⠋⠀⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠙⣷⡀
+<div align="left">
+⢸⡇⠀⠀⠀⠀⠀⠀naruto ultimate     ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⠀   ⠀⢀⡾⠃
+<div align="left">
+⠈⣻⠄⠀⠀⠀⠀⠀ninja storm 4  ⠀‎ ‎ ‎ ‎ ‎ ⠀⠀    ⠀⠐⢯⡀⠀
+<div align="left">
+⢰⣯⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣼⠇⠀
+<div align="left">
+⠀⠙⠷⣤⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢠⡇⠀⠀⠀
+<div align="left">
+⠀⠀⠀⢿⣆⠀⠀⠀⠀⠀⠀⠀⠀⢀⠀⠀⠀⠀⠀⠀⢀⡖⠒⠛⠁⠀⠀⠀
+<div align="left">
+⠀⠀⠀⠀⠙⠓⠒⠛⠳⠦⠤⠤⠖⠉⠳⢤⣄⣀⣤⡴⠟⠁⡔⠂⠒⡄⠀
+<div align="left">⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠐⠊⢱⠁⣢
 
-<!--
-**curse-manipulation/curse-manipulation** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<img src="https://i.ibb.co/vkqvLVw/s-l500-37-99d3c698-2c0d-4f32-be6b-5e6ee32df8f6-500x500-removebg-preview.png"/>
+</p>
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+
+dni freaks dni sakura haters dni sasusaku bashers
+
+<div align="center">
+  
+[rentry](https://rentry.co/kdar) ; [atabook](https://sasuke.atabook.org) ; [strawpage](https://sabakunogaara.straw.page)
