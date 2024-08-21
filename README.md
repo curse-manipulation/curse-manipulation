@@ -31,6 +31,9 @@
 
 dni freaks dni sakura haters dni sasusaku bashers
 
+dni stridercest freaks dni bro strider likers
+
+
 <div align="center">
   
 [rentry](https://rentry.co/kdar) ; [atabook](https://sasuke.atabook.org) ; [strawpage](https://sabakunogaara.straw.page)
