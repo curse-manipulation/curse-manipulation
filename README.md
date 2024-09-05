@@ -1,45 +1,11 @@
-⠀⠀
-<div align="left">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⣠⠞⠉⠉⠳⠴⠀⠀⠀⠀⠀⠀
-<div align="left">
-⠀⠀⠀⠀⣠⡾⠋⠉⠲⡏⠀⠀⠀⠀⠀⠀⠀⠀⠙⠋⠉⠛⢶⡄⠀
-<div align="left">⠀
-⠀⠀.⣰⡏⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢸⣇⣀⣀⠀⠀
-<div align="left">
-⢠⡾⠋⠀⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠙⣷⡀
-<div align="left">
-⢸⡇⠀⠀⠀⠀⠀⠀naruto ultimate     ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⠀   ⠀⢀⡾⠃
-<div align="left">
-⠈⣻⠄⠀⠀⠀⠀⠀ninja storm 4  ⠀‎ ‎ ‎ ‎ ‎ ⠀⠀    ⠀⠐⢯⡀⠀
-<div align="left">
-⢰⣯⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣼⠇⠀
-<div align="left">
-⠀⠙⠷⣤⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢠⡇⠀⠀⠀
-<div align="left">
-⠀⠀⠀⢿⣆⠀⠀⠀⠀⠀⠀⠀⠀⢀⠀⠀⠀⠀⠀⠀⢀⡖⠒⠛⠁⠀⠀⠀
-<div align="left">
-⠀⠀⠀⠀⠙⠓⠒⠛⠳⠦⠤⠤⠖⠉⠳⢤⣄⣀⣤⡴⠟⠁⡔⠂⠒⡄⠀
-<div align="left">⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠐⠊⢱⠁⣢
-
-<p align="center">
-<img src="https://i.ibb.co/vkqvLVw/s-l500-37-99d3c698-2c0d-4f32-be6b-5e6ee32df8f6-500x500-removebg-preview.png"/>
+<p align="center"> I'm Fujiko Mine, and I hope we meet again, my adorable samurai friend. </p>
+<p align="center"> <img src="https://external-preview.redd.it/rMVtZIpmTdGbDtxRCdXumwtC-Kj2cfciL459NA0gYq8.jpg?width=1080&crop=smart&auto=webp&s=2383fbdfc6067d8f3b5e53d4af2f268bdb669e8c"/>
 </p>
 
-
-<div align="center">
-
-dni freaks dni sakura haters dni sasusaku bashers
-
-dni stridercest freaks dni bro strider likers
-
-
-<div align="center">
-  
-[rentry](https://rentry.co/kdar) ; [atabook](https://sasuke.atabook.org) ; [strawpage](https://sabakunogaara.straw.page)
+[RENTRY](https://rentry.co/kdar)‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  [ATABOOK](https://sasuke.atabook.org) ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎  [STRAWPAGE](https://sabakunogaara.straw.page)
 
 
 ‎‎  
 ‎ ‎‎  
 ‎ ‎‎  
-thank u star . for helping me idk Bro i wouldve gone Insane
+
