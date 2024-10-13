@@ -1,7 +1,7 @@
-<p align="center"> I'm Fujiko Mine, and I hope we meet again, my adorable samurai friend. </p>
-<p align="center"> <img src="https://external-preview.redd.it/rMVtZIpmTdGbDtxRCdXumwtC-Kj2cfciL459NA0gYq8.jpg?width=1080&crop=smart&auto=webp&s=2383fbdfc6067d8f3b5e53d4af2f268bdb669e8c"/>
+<p align="center"> Okarun! Let's walk together! </p>
+<p align="center"> <img src="https://i.ibb.co/hB0YssD/image-2024-10-13-134143780-removebg-preview-1.png"/>
 </p>
-
+<p align="center"> Miss Ayase! Good morning! </p>
 <div align="center">
   
 [RENTRY](https://rentry.co/kdar)‎    ‎‎‎‎‎‎⟡‎    [ATABOOK](https://sasuke.atabook.org)    ⟡‎    [STRAWPAGE](https://sabakunogaara.straw.page)
