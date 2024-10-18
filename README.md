@@ -4,7 +4,7 @@
 <p align="center"> Miss Ayase! Good morning! </p>
 <div align="center">
   
-[RENTRY](https://rentry.co/kdar)‎    ‎‎‎‎‎‎⟡‎    [ATABOOK](https://sasuke.atabook.org)    ⟡‎    [STRAWPAGE](https://sabakunogaara.straw.page)
+[RENTRY](https://rentry.co/uchihasasuke)‎    ‎‎‎‎‎‎⟡‎    [ATABOOK](https://sasuke.atabook.org)    ⟡‎    [STRAWPAGE](https://sabakunogaara.straw.page)
 ‎‎  
 ‎ ‎‎  
 ‎ ‎‎  
