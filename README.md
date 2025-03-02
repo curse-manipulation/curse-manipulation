@@ -32,7 +32,5 @@ MATCHING WITH [ZYN](https://github.com/derealizationnss)
 
 ‎‎  
 ‎ ‎‎  
-![image](https://github.com/user-attachments/assets/2139c8fb-76ff-4ff9-8cf8-d76c2abad5cf)
 
-gay butt sex + kizu 
 
