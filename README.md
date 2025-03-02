@@ -9,7 +9,7 @@
 
 <div align="center"> 
   
-MATCHING WITH ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [ZYN](https://github.com/derealizationnss) & [RIN](https://github.com/Hiraethxlvl) 
+MATCHING WITH [ZYN](https://github.com/derealizationnss)
 
 
 
