@@ -3,7 +3,7 @@
 ⠀⠀⠀
 <div align="center"> 
   
-[RENTRY](https://rentry.co/roronoas)‎    ‎‎‎‎‎‎⟡‎    [ATABOOK](https://sasuke.atabook.org)    ⟡‎    [STRAWPAGE](https://sabakunogaara.straw.page) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀❟❛❟ 
+[RENTRY](https://rentry.co/roronoas)‎    ‎‎‎‎‎‎⟡‎    [ATABOOK](https://sasuke.atabook.org)    ⟡‎    [STRAWPAGE](https://sabakunogaara.straw.page) ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀❟❛❟ 
 
 ![418407107-2cf9119f-9335-47fc-af56-fc9fb5213bb6](https://github.com/user-attachments/assets/c40010d9-fef6-4fcc-9e8c-2020ba4e5c39)
 
