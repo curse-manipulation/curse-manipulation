@@ -9,6 +9,9 @@ god Fuckign damn it
 
 ^ roki edited my profile cuz i was busy and dumbass fucked it up like he did his own 💀
 
+![image](https://github.com/user-attachments/assets/aa746c1c-0b9d-4431-aa91-2521c85bc3a0)
+
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
