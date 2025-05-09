@@ -10,7 +10,8 @@ Me : Hello pilot goemon. Pilot goemon : Hello
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+![Untitled design](https://github.com/user-attachments/assets/a4a4e8fc-d2b4-4054-96a2-3823df539993)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
 
