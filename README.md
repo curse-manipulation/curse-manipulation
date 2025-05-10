@@ -1,6 +1,6 @@
 
 ⠀⠀⠀
-... [naruto disc server](https://discord.gg/dRvTYXsyKb)... (zyn forced me to put this here)
+
 
 god Fuckign damn it
   
